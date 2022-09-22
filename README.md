@@ -1,1 +1,1 @@
-# My name is sodiq Mustapha, i am a nigerian student with aspirations to become a software engineer with commnnity. Yurrr"
+# My name is sodiq Mustapha, i am a nigerian student with aspirations to become a software engineer. I plan to uphold my community with the finacial freedom being a software engineer should bring. Yurrr"
